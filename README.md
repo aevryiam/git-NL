@@ -1,1 +1,1 @@
-# Pelatihan NightLogin NWDC DTETI FT UGM
+# Pelatihan NightLogin NWDC DTETI FT
